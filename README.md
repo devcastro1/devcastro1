@@ -18,4 +18,4 @@
 
 </div><br/>
 
-Apaixonado por tecnologia, educação e mudar a vida das pessoas através da programação!
+Sou apaixonado por tecnologia, pelo simples fato de criar algo e esse algo se tornar útil na vida das pessoas!
