@@ -18,4 +18,4 @@
 
 </div><br/>
 
-Sou apaixonado por tecnologia, pelo simples fato de criar algo e esse algo se tornar útil na vida das pessoas!
+
